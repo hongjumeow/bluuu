@@ -1,2 +1,2 @@
 # bluuu
-it's my blue
+tis ma bluu
